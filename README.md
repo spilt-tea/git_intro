@@ -1,2 +1,1 @@
 Lindsay T.
-25
